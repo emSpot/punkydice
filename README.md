@@ -1,2 +1,1 @@
-# punkydice
-program to check mental status of people in politics
+do not disturb them when ever the make an alternative fact!!
